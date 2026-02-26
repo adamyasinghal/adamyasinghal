@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @addybhaibot
+- 👋 Hi, I’m @adamyasinghal
 - 👀 I’m interested in Chess, Gaming and Rubik's cubes and a lot of other stuff too.
 - 🌱 I’m currently going to College.
 - 📫 To reach me, email at - adamyasinghal2006@gmail.com
